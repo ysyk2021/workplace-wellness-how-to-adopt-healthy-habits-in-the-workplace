@@ -1,7 +1,5 @@
 # Introduction
 
-Introduction
-
 In today's fast-paced and often stressful work environments, it can be challenging to prioritize our well-being. However, research has shown that prioritizing workplace wellness is essential for both individual and organizational success.
 
 Workplace wellness programs can help employees reduce stress, improve physical health, increase job satisfaction, and boost productivity. They can also help organizations attract and retain top talent, reduce healthcare costs, and improve overall business performance.
