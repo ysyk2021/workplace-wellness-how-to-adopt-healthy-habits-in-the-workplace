@@ -1,8 +1,5 @@
 # Conclusion
 
-Chapter 9: Conclusion: Mastering the Art of Workplace Wellness
-==============================================================
-
 In this book, we have explored the concept of workplace wellness and provided practical strategies for adopting healthy habits in the workplace. In this concluding chapter, we will discuss the importance of workplace wellness for personal and organizational success, best practices for developing effective workplace wellness skills and strategies, and emerging trends and future directions in workplace wellness theory and practice.
 
 The Importance of Workplace Wellness for Personal and Organizational Success
