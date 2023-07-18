@@ -8,5 +8,4 @@ This book will provide practical guidance on how to adopt healthy habits in the 
 
 Whether you're an employee looking to improve your own well-being or a leader looking to create a more supportive workplace culture, this book will provide the insights and tools you need to make workplace wellness a priority. Let's get started!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
