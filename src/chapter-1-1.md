@@ -1,4 +1,4 @@
-Chapter X: Defining Workplace Wellness and Its Importance in the Modern Workplace
+Defining Workplace Wellness and Its Importance in the Modern Workplace
 =================================================================================
 
 In this chapter, we will explore the concept of workplace wellness and discuss its significance in the modern workplace. We will define workplace wellness, highlight its key components, and explain why it is crucial for both employees and organizations.
