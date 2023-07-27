@@ -33,5 +33,3 @@ However, there are also many opportunities associated with workplace wellness, i
 * Increasing employee morale and productivity
 
 By addressing these challenges and leveraging the opportunities associated with workplace wellness, organizations can create a more supportive and healthy work environment.
-
-In the following chapters, we will explore practical strategies for adopting healthy habits in the workplace, including ways to promote physical activity, healthy eating, stress management, and more.
