@@ -1,5 +1,3 @@
-Developing Strategies for Promoting Physical Health in the Workplace
-=============================================================================
 
 In this chapter, we will explore various strategies and initiatives that organizations can implement to promote physical health in the workplace. We will discuss the importance of creating a supportive environment that encourages healthy habits, provides opportunities for physical activity, and prioritizes employee well-being. Additionally, we will delve into effective strategies for promoting physical health and providing resources and support to employees.
 

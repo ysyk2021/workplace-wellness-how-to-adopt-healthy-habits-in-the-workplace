@@ -1,5 +1,3 @@
-Encouraging Mindfulness and Stress-Reducing Activities
-=====================================================================================================================
 
 Managing stress and mental health in the workplace is essential for promoting employee well-being and productivity. In this chapter, we will explore strategies for encouraging mindfulness and stress-reducing activities to create a supportive environment that prioritizes mental health.
 

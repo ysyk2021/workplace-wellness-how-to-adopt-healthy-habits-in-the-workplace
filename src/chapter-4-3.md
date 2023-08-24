@@ -1,5 +1,3 @@
-Providing Healthy Food Options and Promoting Good Nutrition
-======================================================================
 
 In this chapter, we explore the importance of providing healthy food options and promoting good nutrition in the workplace. We delve into the benefits of encouraging employees to adopt healthy eating habits and offer practical strategies for creating a supportive work environment that prioritizes wellness.
 

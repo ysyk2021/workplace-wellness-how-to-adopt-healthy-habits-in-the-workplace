@@ -1,5 +1,3 @@
-Historical Perspectives on Workplace Wellness Theory and Practice
-============================================================================
 
 In this chapter, we will explore the historical evolution of workplace wellness theory and practice. We will examine key milestones and trends that have shaped the understanding and implementation of workplace wellness initiatives over time.
 

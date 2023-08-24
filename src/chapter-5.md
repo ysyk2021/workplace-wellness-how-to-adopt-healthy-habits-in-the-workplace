@@ -1,5 +1,3 @@
-Chapter 5: Managing Stress and Mental Health in the Workplace
-=============================================================
 
 Stress and mental health issues can have a significant impact on employee productivity, engagement, and well-being. In this chapter, we will explore strategies for managing stress and mental health in the workplace, providing resources and support for mental health and well-being, and encouraging mindfulness and stress-reducing activities.
 

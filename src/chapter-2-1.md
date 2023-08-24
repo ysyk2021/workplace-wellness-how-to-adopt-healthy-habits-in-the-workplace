@@ -1,5 +1,3 @@
-Recognizing the Benefits of Workplace Wellness for Individuals and Organizations
-===========================================================================================
 
 In this chapter, we explore the numerous benefits that workplace wellness programs offer to both individuals and organizations. We examine how prioritizing employee well-being can lead to improved productivity, reduced healthcare costs, and a positive work environment.
 

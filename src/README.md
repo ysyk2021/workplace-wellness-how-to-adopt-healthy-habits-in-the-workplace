@@ -1,4 +1,3 @@
-# Introduction
 
 In today's fast-paced and often stressful work environments, it can be challenging to prioritize our well-being. However, research has shown that prioritizing workplace wellness is essential for both individual and organizational success.
 

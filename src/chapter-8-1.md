@@ -1,5 +1,3 @@
-Understanding the Importance of Measuring and Evaluating Workplace Wellness Performance
-===========================================================================================================================================================
 
 Measuring and evaluating workplace wellness performance is essential for ensuring that initiatives are effective in promoting employee well-being and productivity. In this chapter, we will explore the importance of measuring and evaluating workplace wellness performance and how it can benefit organizations.
 

@@ -1,5 +1,3 @@
-Chapter 7: Leveraging Technology and Tools for Workplace Wellness
-=================================================================
 
 Technology and tools can be powerful resources for promoting workplace wellness. In this chapter, we will explore the different technologies and tools available for workplace wellness, selecting and implementing tools that are best suited to your workplace wellness goals, and using technology and data to track and enhance workplace wellness efforts.
 

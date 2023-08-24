@@ -1,5 +1,3 @@
-Encouraging Employees to Take Breaks and Disconnect from Work
-======================================================================
 
 In this chapter, we will explore the importance of encouraging employees to take regular breaks and disconnect from work. We will discuss the benefits of breaks for employee well-being, productivity, and creativity. Additionally, we will delve into strategies and initiatives that organizations can implement to promote a healthy work-life balance and support employees in disconnecting from work during their time off.
 

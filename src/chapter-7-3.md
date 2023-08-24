@@ -1,5 +1,3 @@
-Using Technology and Data to Track and Enhance Workplace Wellness Efforts
-====================================================================================
 
 In this chapter, we will explore how technology and data can be utilized to track and enhance workplace wellness efforts. We will discuss the benefits of using technology in wellness programs, explore different types of technologies available, and delve into the importance of data analysis for improving employee well-being.
 

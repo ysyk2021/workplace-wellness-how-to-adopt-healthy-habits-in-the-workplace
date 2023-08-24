@@ -1,5 +1,3 @@
-Encouraging Regular Exercise and Movement
-==================================================
 
 In this chapter, we will explore the importance of encouraging regular exercise and movement in the workplace. We will discuss the benefits of physical activity for employee well-being, productivity, and overall health. Additionally, we will delve into strategies and initiatives that organizations can implement to promote and support regular exercise and movement among employees.
 

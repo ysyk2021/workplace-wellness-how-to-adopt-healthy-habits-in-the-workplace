@@ -1,5 +1,3 @@
-Identifying the Different Types of Workplace Wellness Programs and Initiatives
-===========================================================================================================================================
 
 Workplace wellness programs can take many different forms, depending on the needs and goals of the organization. In this chapter, we will explore some of the most common types of workplace wellness programs and initiatives.
 

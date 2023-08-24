@@ -1,5 +1,3 @@
-Selecting and Implementing Tools that are Best Suited to Your Workplace Wellness Goals
-===============================================================================================
 
 In this chapter, we will discuss the process of selecting and implementing tools that align with your workplace wellness goals. Choosing the right tools is crucial for effectively promoting and sustaining a culture of healthy habits in the workplace. We will explore various factors to consider when selecting tools and provide practical guidance for their successful implementation.
 

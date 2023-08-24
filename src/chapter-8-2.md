@@ -1,5 +1,3 @@
-Using Data and Metrics to Track Progress and Success
-========================================================================================================================
 
 Measuring and evaluating workplace wellness performance is essential for ensuring that initiatives are effective in promoting employee well-being and productivity. In this chapter, we will explore the importance of using data and metrics to track progress and success in workplace wellness programs.
 

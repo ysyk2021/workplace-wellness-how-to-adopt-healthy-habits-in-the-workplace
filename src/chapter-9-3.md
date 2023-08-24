@@ -1,5 +1,3 @@
-Emerging Trends and Future Directions in Workplace Wellness Theory and Practice
-===============================================================================================================================================
 
 In this book, we've explored the concept of workplace wellness and provided practical guidance on how to adopt healthy habits in the workplace. We've discussed the benefits of prioritizing workplace wellness, from reduced stress and improved physical health to increased job satisfaction and productivity.
 

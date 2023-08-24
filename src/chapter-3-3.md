@@ -1,5 +1,3 @@
-Encouraging Ownership and Follow-Through
-=================================================
 
 In this chapter, we will explore strategies for encouraging ownership and follow-through in workplace wellness programs. Empowering employees to take ownership of their well-being and supporting them in maintaining healthy habits is crucial for the long-term success of any workplace wellness initiative. We will discuss key principles and practical tips to foster a culture of accountability, motivation, and sustained engagement.
 

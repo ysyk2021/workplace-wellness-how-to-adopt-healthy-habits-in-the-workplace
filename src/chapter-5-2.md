@@ -1,5 +1,3 @@
-Providing Resources and Support for Mental Health and Well-being
-=========================================================================
 
 In this chapter, we will explore the importance of providing resources and support for mental health and well-being in the workplace. We will discuss various strategies and initiatives that organizations can implement to promote mental wellness among employees. By prioritizing mental health and offering valuable resources, employers can create a supportive environment that contributes to overall well-being and productivity.
 

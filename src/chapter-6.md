@@ -1,5 +1,3 @@
-Chapter 6: Encouraging Work-Life Balance
-========================================
 
 Maintaining a healthy work-life balance is crucial for promoting well-being and reducing stress among employees. In this chapter, we will explore strategies for encouraging work-life balance in the workplace, including providing flexible work options and time off policies, and encouraging employees to take breaks and disconnect from work.
 

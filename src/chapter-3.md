@@ -1,5 +1,3 @@
-Chapter 3: Creating a Culture of Workplace Wellness
-===================================================
 
 Creating a culture of workplace wellness is essential for promoting employee well-being and productivity. In this chapter, we will explore strategies for creating a culture of workplace wellness, fostering clear communication and expectations, and encouraging ownership and follow-through.
 

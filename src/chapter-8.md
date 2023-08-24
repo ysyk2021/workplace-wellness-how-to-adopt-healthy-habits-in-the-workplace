@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Workplace Wellness Performance
-==================================================================
 
 Measuring and evaluating workplace wellness performance is essential for ensuring that programs and initiatives are effective in promoting health and well-being among employees. In this chapter, we will explore the importance of measuring and evaluating workplace wellness performance, using data and metrics to track progress and success, and adjusting workplace wellness strategies as needed.
 

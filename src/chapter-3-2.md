@@ -1,5 +1,3 @@
-Fostering Clear Communication and Expectations
-=======================================================
 
 Clear communication and well-defined expectations are vital for the successful implementation of workplace wellness initiatives. In this chapter, we will explore strategies to foster effective communication and set clear expectations, ensuring that employees understand the importance of adopting healthy habits in the workplace.
 

@@ -1,5 +1,3 @@
-Adjusting Workplace Wellness Strategies as Needed
-==========================================================
 
 Adopting healthy habits in the workplace requires a dynamic approach that allows for adjustments and refinements to wellness strategies over time. In this chapter, we will explore the importance of flexibility and adaptation in workplace wellness programs, as well as key considerations for adjusting strategies as needed.
 

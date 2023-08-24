@@ -1,5 +1,3 @@
-Chapter 1: Introduction to Workplace Wellness
-=============================================
 
 In this book, we will explore the concept of workplace wellness and provide practical strategies for adopting healthy habits in the workplace. This chapter will introduce the topic of workplace wellness and its importance in the modern workplace, as well as provide historical perspectives on workplace wellness theory and practice. We will also discuss the challenges and opportunities associated with adopting healthy habits in the workplace.
 

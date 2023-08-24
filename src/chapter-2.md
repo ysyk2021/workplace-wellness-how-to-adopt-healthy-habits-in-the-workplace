@@ -1,5 +1,3 @@
-Chapter 2: Understanding the Benefits of Workplace Wellness
-===========================================================
 
 Understanding the benefits of workplace wellness is essential for promoting employee well-being and productivity. In this chapter, we will explore the benefits of workplace wellness for individuals and organizations, identify the different types of workplace wellness programs and initiatives, and discuss how to build skills for implementing workplace wellness strategies effectively.
 

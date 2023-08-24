@@ -1,5 +1,3 @@
-Developing Strategies for Creating a Culture of Workplace Wellness
-===========================================================================
 
 Creating a culture of workplace wellness requires intentional strategies and sustained efforts to foster a supportive environment where healthy habits are embraced by all. In this chapter, we will explore key approaches and initiatives that organizations can implement to cultivate a culture of workplace wellness.
 

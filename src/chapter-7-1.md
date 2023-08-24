@@ -1,5 +1,3 @@
-Understanding the Different Technologies and Tools Available for Workplace Wellness
-==============================================================================================
 
 In this chapter, we explore the various technologies and tools that can be utilized to enhance workplace wellness programs. We delve into the benefits of using technology to support healthy habits in the workplace and provide an overview of different types of tools available.
 

@@ -1,5 +1,3 @@
-Chapter 4: Promoting Physical Health in the Workplace
-=====================================================
 
 Promoting physical health in the workplace is essential for improving overall employee wellness and productivity. In this chapter, we will explore strategies for promoting physical health in the workplace, including encouraging regular exercise and movement and providing healthy food options and promoting good nutrition.
 
