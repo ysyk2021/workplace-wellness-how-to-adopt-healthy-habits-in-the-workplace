@@ -1,3 +1,6 @@
+# Workplace Wellness: How to Adopt Healthy Habits in the Workplace
+
+Book Link: [https://zhengpublishing.com/workplace-wellness-how-to-adopt-healthy-habits-in-the-workplace/](https://zhengpublishing.com/workplace-wellness-how-to-adopt-healthy-habits-in-the-workplace/)
 
 In today's fast-paced and often stressful work environments, it can be challenging to prioritize our well-being. However, research has shown that prioritizing workplace wellness is essential for both individual and organizational success.
 
